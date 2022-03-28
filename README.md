@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @siyamadit5
-- 👀 I’m interested in crypto, blockchain, and trading.
+- �Yo ! I’m siyam_adit
+- 👀Interested in crypto, blockchain, and trading.
 - 🌱 I’m currently learning trading and BCI.
 - 📫 To reach me siyamadit2002@gmail.com
 
